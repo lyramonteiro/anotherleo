@@ -15,7 +15,7 @@ I do a lot of **<code>minor courses and classes</code>** to learn how the world 
 I like meditation and **<code>Tai Chi</code>**, as well **<code>boxing</code>** a punching bag.  
 If we weren't in pandemic, you would always find me somewhere at **<code>university</code>**...  
 ... probably the **<code>library</code>**, nose stuck on a book, where I also did two years of internship.  
-Now I work at the secretary of the **<code>Faculty of Law</code>**, very nice place!  
+Now I work at the **<code>Faculty of Law</code>** doing office tasks, very nice place!  
 I also **<code>teach old people</code>** how to use and deal with tech, I love their happy smiles.  
 With people of my own age, we play a lot of **<code>Dungeons and Dragons</code>** and others RPGs.  
 I agree that, if you look close enough, **[<code>everything is interesting</code>](https://en.wikipedia.org/wiki/Richard_Feynman)**.
@@ -25,6 +25,7 @@ I live alone and I like to wake up early and spend a bit of my time **[<code>loo
 This chaos out there reassures me: we're small bits of nothing, but **<code>we can do better</code>**.  
 And dogs, I **<code>love dogs</code>**, they're the best of this world.  
 You'll find a lot of **<code>Halestorm</code>** and heavy queens on my playlists.  
+Where I live reaches almost 32°F in the winter, that's **[<code>Niflheim</code>](https://en.wikipedia.org/wiki/Niflheim)** to us.
 
 For the future: **<code>full stack developer</code>** and bug hunter of **<code>web vulnerabilities</code>**.  
 The near future: **<code>learn well</code>**, do better and build up a portfolio.  
