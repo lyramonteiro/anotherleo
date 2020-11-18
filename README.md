@@ -12,15 +12,15 @@ I do a lot of **<code>minor courses and classes</code>** to learn how the world 
 ... and **<code>English</code>** was one of the things that I learned by myself, but still sucks.  
 **<code>Programming</code>** isn't exception: but Udemy cheap prices really helps to get started.  
 
-I like meditation and **<code>Tai Chi</code>**, but also to release tension **<code>boxing</code>** a punching bag.  
-If we weren't in pandemic, you would **ALWAYS** find me somewhere at university...  
+I like meditation and **<code>Tai Chi</code>**, as well **<code>boxing</code>** a punching bag.  
+If we weren't in pandemic, you would always find me somewhere at **<code>university</code>**...  
 ... probably the **<code>library</code>**, nose stuck on a book, where I also did two years of internship.  
 Now I work at the secretary of the **<code>Faculty of Law</code>**, very nice place!  
 I also **<code>teach old people</code>** how to use and deal with tech, I love their happy smiles.  
 With people of my own age, we play a lot of **<code>Dungeons and Dragons</code>** and others RPGs.  
-I agree that, if you look close enough, **<code>everything is interesting</code>**.
+I agree that, if you look close enough, **[<code>everything is interesting</code>](https://en.wikipedia.org/wiki/Richard_Feynman)**.
 
-I live alone and I like to wake up early and spend a bit of my time **<code>looking at the sky</code>** in silence and awe.  
+I live alone and I like to wake up early and spend a bit of my time **[<code>looking at the sky</code>](https://www.instagram.com/p/B8r7W6BAFIu/)** in silence and awe.  
 ... did I mentioned that I like a lot of **<code>physics and astrophysics</code>** stuff?  
 This chaos out there reassures me: we're small bits of nothing, but **<code>we can do better</code>**.  
 And dogs, I **<code>love dogs</code>**, they're the best of this world.  
