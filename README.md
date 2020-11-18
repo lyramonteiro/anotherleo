@@ -1,5 +1,5 @@
 #### hello world
-I'm a **programmer**, currently focused on front-end.  
+I'm a **programmer**, currently focused on front-end and JS.  
 Curious as a cat, loyal as a dog, architect-minded as a beaver, I don't really know why I'm dressed up in flesh as human: *nature does weird stuff*.  
 Enough about my inner zoo, I'm a **full-time student** in Brazil surviving with the internship at university: which means I can eat, pay my rent and my second graduation, buy **coffee** and more courses. Sometimes I can buy **games** and that makes me happy.  
 I study and work as my life depends on that -- 'cause it does --, so I became real good with **time management**.  
