@@ -7,7 +7,7 @@ I study and work as my life depends on that -- 'cause it does --, so I became re
 Passionate about **<code>books</code>** and with an organized mindset, I ended up with a major in **<code>Library Science</code>** and graduate next year!  
 ... but I have more on my mind than that, so technology screamed at me and I started a major in **<code>Information Security</code>** that'll take three years.  
 Meanwhile, I can't stop doing stuff, so I took some courses, like **<code>Administrative Assistant</code>** and **<code>Hardware Operator</code>**.  
-Well, I do have my troubles, as everybody has their own. I'm **<code>autistic</code>** and **<code>transgender</code>**, which means I faced a f* hard time growing up until understand what the hell was going on with me. Antagonizing that steryotype of the autistic guy, I'm quite good with **<code>communication</code>**, but I do need a good time alone within my own world.  
+Well, I do have my troubles, as everybody has their own. I'm **<code>autistic</code>** and **<code>transgender</code>**, which means I faced a f* hard time growing up until understand what the hell was going on with me. Antagonizing that stereotype of the autistic guy, I'm quite good with **<code>communication</code>**, but I do need a good time alone within my own world.  
 I do a lot of **<code>minor courses and classes</code>** to learn how the world works, like fundamentals of finances, physics, law, philosophy, and goes on...  
 ... and **<code>English</code>** was one of the things that I learned by myself, but still sucks.  
 **<code>Programming</code>** isn't exception: but Udemy cheap prices really helps to get started.  
