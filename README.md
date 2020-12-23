@@ -4,7 +4,7 @@ Curious as a cat, loyal as a dog, architect-minded as a beaver, I don't really k
 Enough about my inner zoo, I'm a **<code>full-time student</code>** in Brazil surviving of internship at university: which means I can eat, pay my rent and my second graduation, buy **<code>coffee</code>** and more courses. Sometimes I can buy **<code>games</code>** and that makes me happy.  
 
 I study and work as my life depends on that -- 'cause it does --, so I became real good with **<code>time management</code>**.  
-Passionate about **<code>books</code>** and with an organized mindset, I ended up with a major in **<code>Library Science</code>** and will graduate next year!  
+Passionate about **<code>books</code>** and with an organized mindset, I ended up as undergraduate in **<code>Library Science</code>** and will finish next year!  
 ... but I have more on my mind than that, so technology screamed at me and I started a major in **<code>Information Security</code>** that'll take three years.  
 Meanwhile, I can't stop doing stuff, so took some courses, like **<code>Administrative Assistant</code>** and **<code>Hardware Operator</code>**.  
 Well, I do have my troubles, as everybody has their own: I'm **<code>autistic</code>** and **<code>transgender</code>**, which means I faced a f* hard time growing up until realize what the hell was going on with me. Antagonizing that stereotype of the autistic guy, I'm quite good with **<code>communication</code>**, but I do need a some time alone within my own world.  
