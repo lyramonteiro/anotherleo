@@ -34,3 +34,4 @@ Dreams? **<code>Canada</code>**, but isn't a dream 'cause I'm gonna make it real
 
 So that's me,  
 ### <code>hi, I'm Leo Thomas.</code>
+![codewars badge](https://www.codewars.com/users/anotherleo/badges/large)
