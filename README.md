@@ -29,7 +29,7 @@ Where I live reaches almost 32°F in the winter, that's **[<code>Niflheim</code>
 
 For the future: **<code>full stack developer</code>** and bug hunter of **<code>web vulnerabilities</code>**.  
 The near future: **<code>learn well</code>**, do better and build up a portfolio.  
-We'll see that along the road: even improvised **[<code>a library</code>](https://anotherleo.github.io/studylibrary)** to help myself.  
+We'll see that along the road: even improvised **<code>a library</code>** to help myself.  
 Dreams? **<code>Canada</code>**, but isn't a dream 'cause I'm gonna make it real.  
 
 So that's me,  
